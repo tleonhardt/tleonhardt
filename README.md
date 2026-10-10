@@ -19,4 +19,3 @@ Engineering leader and hands-on security software developer with 20+ years spann
 ## Elsewhere
 
 - LinkedIn: [linkedin.com/in/todd-leonhardt-1976452](https://www.linkedin.com/in/todd-leonhardt-1976452)
-- Email: todd.leonhardt@gmail.com
